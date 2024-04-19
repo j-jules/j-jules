@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @j-jules
+- 👀 I’m interested in github rn 
+- 🌱 I’m currently learning fucking github
+- 💞️ I’m looking to collaborate on not github
+- 📫 How to reach me knock on ma door
+- 😄 Pronouns: he/him
