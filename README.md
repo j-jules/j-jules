@@ -2,5 +2,5 @@
 - 👀 I’m interested in github rn 
 - 🌱 I’m currently learning fucking github
 - 💞️ I’m looking to collaborate on not github
-- 📫 How to reach me knock on ma door
+- 📫 How to reach me : you cannot
 - 😄 Pronouns: he/him
