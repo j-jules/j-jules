@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @j-jules
 - 👀 I’m interested in github rn 
-- 🌱 I’m currently learning fucking github
-- 💞️ I’m looking to collaborate on not github
-- 📫 How to reach me : you cannot
+- 🌱 I’m currently learning github
+- 💞️ I’m looking to collaborate on github
+- 📫 How to reach me : 
 - 😄 Pronouns: he/him
